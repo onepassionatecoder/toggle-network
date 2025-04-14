@@ -4,4 +4,4 @@
 
 ## More information on telegram
 
-Paid script, dm me on tg t.me/roodrigato
+Paid script, dm me on [Telegram](t.me/roodrigato)
